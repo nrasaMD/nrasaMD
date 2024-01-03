@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Nicholas Rasa
-- 👀 I’m interested in Cyber Security
-- 🌱 I’m currently looking for a new job
+- 👀 I recently graduated with a degree in Cyber Security
+- 🌱 I’m currently looking for a entry level cyber position in the Houston area
 - 📫 How to reach me: recosfinest@gmail.com
 
